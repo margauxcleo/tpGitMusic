@@ -50,3 +50,10 @@
 # A mulatto, an albino, a mosquito, my libido
 # A denial, a denial, a denial, a denial, a denial
 # A denial, a denial, a denial, a denial
+
+# Georgia on my mind - Ray Charles
+
+# Georgia, Georgia
+# The whole day through (the whole day through)
+# Just an old sweet song
+# Keeps Georgia on my mind (Georgia on my mind)
