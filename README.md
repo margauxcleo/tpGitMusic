@@ -20,3 +20,9 @@
 # And for this gift I feel blessed
 # Our little group has always been
 # And always will until the end
+
+# Moi je m'appelle Bernard Minet.
+# Heureusement que pour bouffer,
+# y a mes copains,
+# les japonais.
+# Biouman et Dorothée ! 
