@@ -15,3 +15,8 @@
 # Here we are now, entertain us
 # A mulatto, an albino, a mosquito, my libido
 # Yeah, hey
+
+# I'm worse at what I do best
+# And for this gift I feel blessed
+# Our little group has always been
+# And always will until the end
