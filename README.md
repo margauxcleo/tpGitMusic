@@ -26,3 +26,24 @@
 # y a mes copains,
 # les japonais.
 # Biouman et Dorothée ! 
+# Hello, hello, hello, how low
+# Hello, hello, hello, how low
+# Hello, hello, hello, how low
+# Hello, hello, hello
+
+# With the lights out, it's less dangerous
+# Here we are now, entertain us
+# I feel stupid and contagious
+# Here we are now, entertain us
+# A mulatto, an albino, a mosquito, my libido
+# Yeah, hey
+
+# And I forget just why I taste
+# Oh yeah, I guess it makes me smile
+# I found it hard, it's hard to find
+# Oh well, whatever, never mind
+
+# Hello, hello, hello, how low
+# Hello, hello, hello, how low
+# Hello, hello, hello, how low
+# Hello, hello, hello
