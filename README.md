@@ -20,3 +20,15 @@
 # And for this gift I feel blessed
 # Our little group has always been
 # And always will until the end
+
+# Hello, hello, hello, how low
+# Hello, hello, hello, how low
+# Hello, hello, hello, how low
+# Hello, hello, hello
+
+# With the lights out, it's less dangerous
+# Here we are now, entertain us
+# I feel stupid and contagious
+# Here we are now, entertain us
+# A mulatto, an albino, a mosquito, my libido
+# Yeah, hey
