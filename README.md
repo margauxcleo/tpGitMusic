@@ -8,6 +8,7 @@
 # Hello, hello, hello, how low
 # Hello, hello, hello, how low
 # Hello, hello, hello
+# Hello World !
 #
 # With the lights out, it's less dangerous
 # Here we are now, entertain us
