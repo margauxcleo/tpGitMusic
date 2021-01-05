@@ -21,6 +21,12 @@
 # And for this gift I feel blessed
 # Our little group has always been
 # And always will until the end
+
+# Moi je m'appelle Bernard Minet.
+# Heureusement que pour bouffer,
+# y a mes copains,
+# les japonais.
+# Biouman et Dorothée ! 
 #
 # Hello, hello, hello, how low
 # Hello, hello, hello, how low
@@ -52,3 +58,11 @@
 # A mulatto, an albino, a mosquito, my libido
 # A denial, a denial, a denial, a denial, a denial
 # A denial, a denial, a denial, a denial
+
+# Georgia on my mind - Ray Charles
+
+# Georgia, Georgia
+# The whole day through (the whole day through)
+# Just an old sweet song
+# Keeps Georgia on my mind (Georgia on my mind)
+
