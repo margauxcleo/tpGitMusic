@@ -65,3 +65,9 @@
 # Just an old sweet song
 # Keeps Georgia on my mind (Georgia on my mind)
 
+# I said Georgia
+# Georgia
+# A song of you (a song of you)
+# Comes as sweet and clear
+# As moonlight through the pines
+
